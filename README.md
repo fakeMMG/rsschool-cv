@@ -1,1 +1,1 @@
-# rsschool-cv
+https://fakeMMG.github.io/rsschool-cv/cv
